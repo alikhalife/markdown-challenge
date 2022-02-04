@@ -1,3 +1,9 @@
+# ***Ali Khalife***
+
+*Le progrès technique est comme une hache qu'on aurait mis dans les mains d'un psychopathe. - A. Einstein*
+
+![Here's a picture of me!](https://media-exp1.licdn.com/dms/image/C4D03AQHa6-B7SWD4MA/profile-displayphoto-shrink_400_400/0/1617790501095?e=1649289600&v=beta&t=RejHhX6ulp6RyQSt1wm2RccxSZ7ukZ0mc1J9KbST_eQ "Ali K")
+
 
 ## About Me
 
